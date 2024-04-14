@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @MrJofish
 - 👀 I’m interested in fisting
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on bed
-- 📫 How to reach me cum
+- 🌱 I’m currently learning on cum
+- 💞️ I’m looking to collaborate on Fisting
+- 📫 How to reach me with cum
 - 😄 Pronouns: HAHAHAHAHAHAHAH
 - ⚡ Fun fact: i'm gay
 
