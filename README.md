@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning on cum
 - 💞️ I’m looking to collaborate on Fisting
 - 📫 How to reach me with cum
-- 😄 Pronouns: HAHAHAHAHAHAHAH
+- 😄 Pronouns: Вертолёт
+- 
 - ⚡ Fun fact: i'm gay
 
 <!---
